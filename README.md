@@ -1,6 +1,4 @@
-# Who Am I? 
-
-Some random noname...
+# Some random noname...
 
 ## Certifications & Badges
 
