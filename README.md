@@ -1,4 +1,12 @@
-# Some random noname...
+#### Listen to everything to the extreme
+#### Work until your eyes burn
+#### Sketch until your hands shake
+#### Train until you collapse
+#### Write until the words blur
+#### Practice until fingers bleed
+#### Push the limits of your mind daily
+#### Because the edge between insanity and greatness
+#### Is where legends are born...
 
 ## Certifications & Badges
 
